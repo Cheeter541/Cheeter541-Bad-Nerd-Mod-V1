@@ -1,5 +1,5 @@
 Surprise drop!! 🤑
-Jrk
+https://www.mediafire.com/file/5cboywwx1gf5w48/Cheeter541_Bad_Nerd_V1.apk/file
 Features:
 (1) $2,000,000,000
 (2) 2,147,483,647 Strength
